@@ -64,6 +64,10 @@ Schedule and Material Links: https://drive.google.com/file/d/1Ne1oJMmDG83TUb-KsK
 **Coffee Break**
 * 2:30pm - 3:00pm
 
+**QS=RQ Is All You Need...to understand the vast majority of representation theory**
+* Tess Smidt, MIT
+* 3:00pm - 4:00pm
+
 
 
 
